@@ -1,5 +1,7 @@
 # Trump wants pre-vote stimulus deal
 
+来源地址：http://www.chinadaily.com.cn/a/202010/22/WS5f90603aa31024ad0ba801ea.html
+
 ```
 Trump wants pre-vote stimulus deal
 ```
